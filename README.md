@@ -26,7 +26,7 @@ We are open to:
 - Trust-based asset management
 ---
 ### 📇 Contact
-**Owner**: Andriy Viktorovych Melnyk  
+**Owner**: Andriy Melnyk  
 📱 Phone: +380503670150 (Viber, WhatsApp, Telegram)  
 📧 Email: [melan.ua@gmail.com](mailto:melan.ua@gmail.com)
 ---
